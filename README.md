@@ -7,3 +7,4 @@ Blå
 Nu ändrar jag igen
 Bye-world
 Added cute colorfull ponies!!
+lägger till earth day is a good day skriver på svenska nu 
